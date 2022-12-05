@@ -1,0 +1,2 @@
+# BASE-SPOOFER-OPEN-SOURCE-SPOOFER
+credits >>> R0se#8680 or firex#8680
